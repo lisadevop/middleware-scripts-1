@@ -1,1 +1,1 @@
-iam a devops engineer with 6 figures
+iam a devops engineer with six figures
